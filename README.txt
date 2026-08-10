@@ -1,5 +1,5 @@
 Scholarify Academics website
-Contact:
+Contact:0702238407
 WhatsApp/Phone: 0702238407
 Email: valentinochangalwa9@gmail.com
 Physical location: Bungoma, Kenya
